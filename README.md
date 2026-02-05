@@ -1,2 +1,6 @@
 # Bastardizer999
-For Pony Town users
+**For Pony Town users**
+- Quill or TV. Or Bastard.
+- I'm 21, please DNI if you're under 16 thanks!
+
+- Roleplay nerd, artist and big loser freak.
